@@ -1,6 +1,5 @@
 # About Me:
 Currently working on Business Analytics and Ai Projects.
- ## Here is my Proof of work which depicts the Real Skills.
 
 
 ## Socials:
